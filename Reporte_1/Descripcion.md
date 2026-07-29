@@ -1,0 +1,1 @@
+Esta practica consistió en desplegar un soporte técnico acerca de una laptop, aquí encontrara toda la documentación solicitada, es decir un video tutorial de la limpieza, un manual técnico sobre el dispositivo, y un trifoliar informativo.
